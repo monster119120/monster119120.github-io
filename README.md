@@ -1,4 +1,4 @@
-## Welcome 褚石磊 and 王岂凡 to GayHub !
+## Welcome 褚石磊 ♂ 王岂凡 ♂ 徐进锋 to GayHub !
 
 
 
